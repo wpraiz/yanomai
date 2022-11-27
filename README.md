@@ -5,5 +5,3 @@
 - Leia: t.ly/f0K- (Sobre os Povos Indígenas da América Latina)
 
 > Sobre o Repositório
-- 
-
